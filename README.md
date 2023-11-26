@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @antonthys
+- 👨‍🏫 highschool teacher
+- 🎓 physics and computer science
